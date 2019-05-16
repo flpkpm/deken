@@ -1,0 +1,25 @@
+<?xml version="1.0" encoding="utf-8"?>
+<search>
+  <entry>
+    <title><![CDATA[开启我的阅读之旅]]></title>
+    <url>%2F2019%2F05%2F16%2F%E5%BC%80%E5%90%AF%E6%88%91%E7%9A%84%E9%98%85%E8%AF%BB%E4%B9%8B%E6%97%85%2F</url>
+    <content type="text"></content>
+  </entry>
+  <entry>
+    <title><![CDATA[个人站点搭建]]></title>
+    <url>%2F2019%2F05%2F16%2F%E4%B8%AA%E4%BA%BA%E7%AB%99%E7%82%B9%E6%90%AD%E5%BB%BA%2F</url>
+    <content type="text"><![CDATA[基础知识@ (博客) [git, markdown,linux命令] 搭建教程链接1,fangzh个人学习站点2,我搭建GitHubPage个人博客学的教程3,电脑重装了系统/多台电脑写博客？那就赶紧戳这里使用hexo，如果换了电脑怎么更新博客？ 4,Hexo免输入密码部署到github加入SSH Agentssh-agent -s如果出现类似Agent pid XXXX这样的字样，则跳过下一步，否则输入：eval ssh-agent -s直到出现Agent pid XXXX这样的提示之后，输入：ssh-add ~/.ssh/id_rsa 执行hexo d 时，如果更换目录需要重新添加一下代理]]></content>
+      <categories>
+        <category>站点</category>
+      </categories>
+      <tags>
+        <tag>博客搭建</tag>
+        <tag>学习</tag>
+      </tags>
+  </entry>
+  <entry>
+    <title><![CDATA[Hello World]]></title>
+    <url>%2F2019%2F05%2F15%2Fhello-world%2F</url>
+    <content type="text"><![CDATA[Welcome to Hexo! This is your very first post. Check documentation for more info. If you get any problems when using Hexo, you can find the answer in troubleshooting or you can ask me on GitHub. Quick StartCreate a new post1$ hexo new "My New Post" More info: Writing Run server1$ hexo server More info: Server Generate static files1$ hexo generate More info: Generating Deploy to remote sites1$ hexo deploy More info: Deployment]]></content>
+  </entry>
+</search>
