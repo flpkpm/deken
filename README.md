@@ -2,6 +2,7 @@
 个人成长空间
 点击上方公号就可以follow师兄啦
 ![](https://mmbiz.qpic.cn/mmbiz_gif/gibC3OFwKUBWcQ1JolrLztrVMGia5gevibXFDic4Yn4S2qkPsvJz41ibPCeqbsOqMlRNNpGugpUUXzWp9bkNaqz8M3g/640?wx_fmt=1wxfrom=5)
+
 -01-
 
 Hello，豆粉们好，我是lip师兄。
@@ -21,12 +22,14 @@ Hello，豆粉们好，我是lip师兄。
 怎么会花这么多钱去买茅台！
 
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/gibC3OFwKUBU1SrtVZnetSthbsB61fDaZibHflVrolIJhxIFFWaqURjSnozBR1Tyuy2lDYdL14cAb2wiaxiczRuDCg/640?wx_fmt=jpeg)
+
 一问，原来铁柱是要和女朋友回家见家长，带一瓶茅台给女朋友的外公。
 
 靠……原来是用茅台来拍马屁。
 
  
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/gibC3OFwKUBU1SrtVZnetSthbsB61fDaZB4pA7VLG1iaBUfI1ymib3ddwJYWOts26HgzaLbtto5qxpZu3gBf8fOVw/640?wx_fmt=jpeg)
+
 人生第一次买茅台，铁柱是又肉疼又兴奋，
 
 跑来问我：
@@ -68,6 +71,7 @@ Hello，豆粉们好，我是lip师兄。
 
  
 ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBU1SrtVZnetSthbsB61fDaZlB2V5KB6G5FNzAW8DThDd4V91EYocvibYhwF1tpjEZ0G3xYl63wFCFA/640?wx_fmt=png)
+
 这里解释一下毛利率的概念。
 
 毛利率 =毛利润/收入。
@@ -102,6 +106,7 @@ Hello，豆粉们好，我是lip师兄。
 
  
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/gibC3OFwKUBU1SrtVZnetSthbsB61fDaZfNUP6RwfZuaCQyZ2CibFll9vOicD3PYjkznnWBjDYXKR65MfNA3NvWoA/640?wx_fmt=jpeg)
+
 虽然听起来对消费者是个悲剧，
 
 但这对于投资者来说简直是福音。
@@ -142,6 +147,7 @@ Hello，豆粉们好，我是lip师兄。
 
  
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/gibC3OFwKUBU1SrtVZnetSthbsB61fDaZd4icnfDISMccr63AxArsao1nF3ibOpTnRMFDOujDh0yI9yXnLJR6wJIw/640?wx_fmt=jpeg)
+
 -03-
 
 实际上，白酒股的优点远不止这一个。
@@ -153,6 +159,7 @@ Hello，豆粉们好，我是lip师兄。
 
  
 ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBU1SrtVZnetSthbsB61fDaZb85DicBckR46etib2gsMP6WkiamITJpEr7HYILib5vjsNCS55D6HDC1gsA/640?wx_fmt=png)
+
 这里解释一下什么叫预收账款。
 
 我们普通人平时买茅台，不是直接向茅台酒厂卖的，而是向经销商买的。
@@ -171,6 +178,7 @@ Hello，豆粉们好，我是lip师兄。
 
  
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/gibC3OFwKUBU1SrtVZnetSthbsB61fDaZ9yQu2rkNMQjI8SCuicnqdycNULJSibxPsF9kQnFll7x3hbPCHode1wjw/640?wx_fmt=jpeg)
+
 而茅台账上躺的这100多亿，
 
 就是提前收到了钱，但还没有发货的部分。
@@ -229,6 +237,7 @@ Hello，豆粉们好，我是lip师兄。
 
  
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/gibC3OFwKUBU1SrtVZnetSthbsB61fDaZGp1jO3g7SuwEfmwDNoWjwSc1SNicrK4DjTbL1hhZCfHxdx8E3r3NUww/640?wx_fmt=jpeg)
+
 而白酒行业则不一样了。
 
 白酒行业已经存在几百上千年，而且消费是有成瘾性的。
@@ -306,6 +315,7 @@ Hello，豆粉们好，我是lip师兄。
 比如，今天贵州茅台市盈率是29.5，比较贵；
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBU1SrtVZnetSthbsB61fDaZ3B7YbVzUx4OwnJLPh9z8VDWAWsk6TicZZF4icvLqNEoEWvq5Eghr55Og/640?wx_fmt=png)
+
 （股价高达800多）
 
  
@@ -368,4 +378,5 @@ Hello，豆粉们好，我是lip师兄。
 
 愿拿得出7万的你被世界温柔以待~
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/gibC3OFwKUBXkKLSYhjqibR4OWKaImNhBILIGu3GzeesoZVxozqfrmc4Fyew28zqXFEicgIQr4mFvICLS2kd2lUmw/640?wx_fmt=jpeg)
+
 点在看的豆粉，都能拿得出7万
