@@ -1,10 +1,10 @@
 # flpkpm.github.io
 个人成长空间
- 点击上方公号就可以follow师兄啦
+点击上方公号就可以follow师兄啦
             ![](https://mmbiz.qpic.cn/mmbiz_gif/gibC3OFwKUBWcQ1JolrLztrVMGia5gevibXFDic4Yn4S2qkPsvJz41ibPCeqbsOqMlRNNpGugpUUXzWp9bkNaqz8M3g/640?wx_fmt=1wxfrom=5)
-                - 01 -
+- 01 -
             
- Hello，豆粉们好，我是lip师兄。
+Hello，豆粉们好，我是lip师兄。
 前几天，铁柱买了一瓶茅台酒，整整花了七八百。
  这事儿实在是太神奇了。
  为什么呢？
@@ -15,8 +15,8 @@
  靠……原来是用茅台来拍马屁。
          ![](https://mmbiz.qpic.cn/mmbiz_jpg/gibC3OFwKUBU1SrtVZnetSthbsB61fDaZB4pA7VLG1iaBUfI1ymib3ddwJYWOts26HgzaLbtto5qxpZu3gBf8fOVw/640?wx_fmt=jpeg)
  人生第一次买茅台，铁柱是又肉疼又兴奋，
-            跑来问我：
-             刚好，上一篇，我们讲了白酒行业出了很多牛股，非常适合投资。
+ 跑来问我：
+刚好，上一篇，我们讲了白酒行业出了很多牛股，非常适合投资。
 那今天我们就以这个问题为起源，来看一看白酒的投资：
  一瓶售价758的茅台，生产成本是多少？
                     
@@ -125,7 +125,7 @@
  有的人因为酒，喝的肾虚肾亏。
  铁柱，你却能靠酒，把妹娶亲……
  哎，人与人之间的差距怎么这么大呢？
-   一顿夸奖下去，铁柱感觉非常舒适：
+ 一顿夸奖下去，铁柱感觉非常舒适：
  师兄啊，虽然我之前也错过了白酒股，
  但还好，现在学习也来得及。
 经过你这么一分析，我心里有数多了。
@@ -137,4 +137,4 @@
  好了，不扎心了，你还是和我一起来祈祷茅台再多跌一点吧。
  愿拿得出7万的你被世界温柔以待~
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/gibC3OFwKUBXkKLSYhjqibR4OWKaImNhBILIGu3GzeesoZVxozqfrmc4Fyew28zqXFEicgIQr4mFvICLS2kd2lUmw/640?wx_fmt=jpeg)
-                点在看的豆粉，都能拿得出7万
+ 点在看的豆粉，都能拿得出7万
