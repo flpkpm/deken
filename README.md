@@ -1,7 +1,3 @@
-
-
-
-
 Hello，豆粉们大家好，我是lip师兄。
 
 今天我们说一个屌丝小散户，挑战金融大鳄的故事。
@@ -49,12 +45,16 @@ Hello，豆粉们大家好，我是lip师兄。
 
 这不由让我想起了“相貌平平”古天乐：
 
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZzETLqXrOM4dLfqGjehGfZggqS2abMuRjXv77ia9fbsu0n9JqKvsBk6A/640?wx_fmt=png)
 
 ( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZzETLqXrOM4dLfqGjehGfZggqS2abMuRjXv77ia9fbsu0n9JqKvsBk6A/640?wx_fmt=png)
 
 
-
-
+**01**
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ77BDx2kemliamoDJaYHqUfteBQDeurt0qLkaemZbtnjf9VybEr6U97Q/640?wx_fmt=png)
+**01**
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ77BDx2kemliamoDJaYHqUfteBQDeurt0qLkaemZbtnjf9VybEr6U97Q/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ77BDx2kemliamoDJaYHqUfteBQDeurt0qLkaemZbtnjf9VybEr6U97Q/640?wx_fmt=png)
 
 / /
 
@@ -64,7 +64,7 @@ Hello，豆粉们大家好，我是lip师兄。
 哎，这帮豆粉，平时娇生惯养，又不擅长算术，也不会金融，这下应该要被羞辱了。心疼ing……
 
 于是，我去某个群里吼了一声：
-
+**大家上半年收益如何？****有超过25%的么？**
 
 部分消息如下。
 
@@ -74,32 +74,52 @@ Hello，豆粉们大家好，我是lip师兄。
 
 更有部分豆粉，直接上收截图：
 
-
-
-
-
+**34.19%**
+**40.32%**
+**39.31%**
+**41.09%**
 
 
 
 
 看来，也不是所有散户都无法打败市场。
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ00NX0yQXshbD48wxQVRh6lMibvRrprQ5jZ4xZRFO8Luj7icjtgHoawnw/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZFeEdW3GV9aaNVloYlgtgTVb0z54KOjibH65hUlPaKWjKp5wo4mNlbvg/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZQh0ZdxBaVJeTK8W0fvEgfacxnIVY8UPtibtUML68IKLrhHVQJDMHibHw/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZgibibT5hOjR5QibS23Ic7lcldDgrlficCzunEMKUuwvFMRmgx7kuPNX72g/640?wx_fmt=png)
+**34.19%**
+**40.32%**
+**39.31%**
+**41.09%**
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ00NX0yQXshbD48wxQVRh6lMibvRrprQ5jZ4xZRFO8Luj7icjtgHoawnw/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZFeEdW3GV9aaNVloYlgtgTVb0z54KOjibH65hUlPaKWjKp5wo4mNlbvg/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZQh0ZdxBaVJeTK8W0fvEgfacxnIVY8UPtibtUML68IKLrhHVQJDMHibHw/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZgibibT5hOjR5QibS23Ic7lcldDgrlficCzunEMKUuwvFMRmgx7kuPNX72g/640?wx_fmt=png)
+**34.19%**
+**40.32%**
+**39.31%**
+**41.09%**
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ00NX0yQXshbD48wxQVRh6lMibvRrprQ5jZ4xZRFO8Luj7icjtgHoawnw/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZFeEdW3GV9aaNVloYlgtgTVb0z54KOjibH65hUlPaKWjKp5wo4mNlbvg/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZQh0ZdxBaVJeTK8W0fvEgfacxnIVY8UPtibtUML68IKLrhHVQJDMHibHw/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZgibibT5hOjR5QibS23Ic7lcldDgrlficCzunEMKUuwvFMRmgx7kuPNX72g/640?wx_fmt=png)
+**34.19%**
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ00NX0yQXshbD48wxQVRh6lMibvRrprQ5jZ4xZRFO8Luj7icjtgHoawnw/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ00NX0yQXshbD48wxQVRh6lMibvRrprQ5jZ4xZRFO8Luj7icjtgHoawnw/640?wx_fmt=png)
+**34.19%**
+**34.19%**
+**40.32%**
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZFeEdW3GV9aaNVloYlgtgTVb0z54KOjibH65hUlPaKWjKp5wo4mNlbvg/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZFeEdW3GV9aaNVloYlgtgTVb0z54KOjibH65hUlPaKWjKp5wo4mNlbvg/640?wx_fmt=png)
+**40.32%**
+**39.31%**
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZQh0ZdxBaVJeTK8W0fvEgfacxnIVY8UPtibtUML68IKLrhHVQJDMHibHw/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZQh0ZdxBaVJeTK8W0fvEgfacxnIVY8UPtibtUML68IKLrhHVQJDMHibHw/640?wx_fmt=png)
+**39.31%**
+**41.09%**
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZgibibT5hOjR5QibS23Ic7lcldDgrlficCzunEMKUuwvFMRmgx7kuPNX72g/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZgibibT5hOjR5QibS23Ic7lcldDgrlficCzunEMKUuwvFMRmgx7kuPNX72g/640?wx_fmt=png)
+**41.09%**
 
 当然，也有一些豆粉，收益稍差一些。
 比如这位：
@@ -110,15 +130,18 @@ Hello，豆粉们大家好，我是lip师兄。
 篇幅原因，我们不放所有截图了。
 
 但综合以上内容，我们知道几个事情：
-
-
-
+**1、 有的豆粉，甚至不少豆粉，取得了超过平均水平的收益；**
+**2、 当然，也有豆粉操作不当，经验不足，收益较低；**
+**3、 但他表明，专业投资者并不是不可战胜的。散户投资者经过学习和训练，也是可以达到、甚至超过他们的。**
 
 那么，为什么专业投资者们看起来优势这么大，还能被打败呢？
 
 
-
-
+**02**
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ77BDx2kemliamoDJaYHqUfteBQDeurt0qLkaemZbtnjf9VybEr6U97Q/640?wx_fmt=png)
+**02**
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ77BDx2kemliamoDJaYHqUfteBQDeurt0qLkaemZbtnjf9VybEr6U97Q/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ77BDx2kemliamoDJaYHqUfteBQDeurt0qLkaemZbtnjf9VybEr6U97Q/640?wx_fmt=png)
 
 / /
 
@@ -141,14 +164,20 @@ Hello，豆粉们大家好，我是lip师兄。
 
 他们所管理的基金，收益率分别只有2.5%和6.4%。
 
+**What!**
 
-
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZAuFYt75H1mWaicpYPpP5dhOia7pAh4no3efEiasmyESUHKacTm0ytMUqQ/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZAuFYt75H1mWaicpYPpP5dhOia7pAh4no3efEiasmyESUHKacTm0ytMUqQ/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZAuFYt75H1mWaicpYPpP5dhOia7pAh4no3efEiasmyESUHKacTm0ytMUqQ/640?wx_fmt=png)
+**What!**
 ( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZAuFYt75H1mWaicpYPpP5dhOia7pAh4no3efEiasmyESUHKacTm0ytMUqQ/640?wx_fmt=png)
 
 
-
-
-
+**03**
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ77BDx2kemliamoDJaYHqUfteBQDeurt0qLkaemZbtnjf9VybEr6U97Q/640?wx_fmt=png)
+**03**
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ77BDx2kemliamoDJaYHqUfteBQDeurt0qLkaemZbtnjf9VybEr6U97Q/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ77BDx2kemliamoDJaYHqUfteBQDeurt0qLkaemZbtnjf9VybEr6U97Q/640?wx_fmt=png)
 
 / /
 
@@ -164,7 +193,7 @@ Hello，豆粉们大家好，我是lip师兄。
 那么，到底是什么，使得他们的业绩落后于我们呢？
 因为，专业的投资者也有自己的烦恼。
 
-
+**钱太多，放不开手脚**
 
 我们豆粉买股票，最大的烦恼是——没钱。
 基金经理买股票，最大的烦恼是——钱太多。
@@ -193,7 +222,7 @@ Hello，豆粉们大家好，我是lip师兄。
 ( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZhuqtDhiaYr4GSEu94mVfj9lNv6Sl4Kp53z4z0fkIJwibab9598CviaBgw/640?wx_fmt=png)
 
 
-
+**因为业绩压力，导致操作“变形”。**
 
 我们的豆粉，投资少赚了点钱，甚至亏了点钱。
 最多也就是回家跪个搓衣板。
@@ -209,7 +238,7 @@ Hello，豆粉们大家好，我是lip师兄。
 ( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZclgzqdWRWkiaGqsxOZGMeTiaufpcJqNYjvibxAqFfTQw0eliacf2Y8bDqQ/640?wx_fmt=png)
 
 
-
+** 疲于应对投资者的赎回和申购**
 
 我们的豆粉，基本上都是用自己的闲钱投资。
 
@@ -227,14 +256,15 @@ Hello，豆粉们大家好，我是lip师兄。
 
 
 
+**净申购份额：**
+**-165,186,868.82**
 
-
-
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZiazPPX9mIrJaWQmEbSs04Y4fTibRWNL6Ser7yPwBiaRXayFCwYA7iakaaA/640?wx_fmt=png)
 ( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZiazPPX9mIrJaWQmEbSs04Y4fTibRWNL6Ser7yPwBiaRXayFCwYA7iakaaA/640?wx_fmt=png)
 
 
-
-
+**净申购份额：**
+**-165,186,868.82**
 
 
 在这个案例中，2019初，可是市场的最低点，便宜的股票一大堆。
@@ -245,13 +275,19 @@ Hello，豆粉们大家好，我是lip师兄。
 
 
 
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ3FxuPEd9LBmn83PxGM7sMwp6YUr2g2uBiavRLB5BrSyU3ofMuuic7ialA/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ3FxuPEd9LBmn83PxGM7sMwp6YUr2g2uBiavRLB5BrSyU3ofMuuic7ialA/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ3FxuPEd9LBmn83PxGM7sMwp6YUr2g2uBiavRLB5BrSyU3ofMuuic7ialA/640?wx_fmt=png)
 
 
 ( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ3FxuPEd9LBmn83PxGM7sMwp6YUr2g2uBiavRLB5BrSyU3ofMuuic7ialA/640?wx_fmt=png)
 
 
-
-
+**04**
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ77BDx2kemliamoDJaYHqUfteBQDeurt0qLkaemZbtnjf9VybEr6U97Q/640?wx_fmt=png)
+**04**
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ77BDx2kemliamoDJaYHqUfteBQDeurt0qLkaemZbtnjf9VybEr6U97Q/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ77BDx2kemliamoDJaYHqUfteBQDeurt0qLkaemZbtnjf9VybEr6U97Q/640?wx_fmt=png)
 
 / /
 
@@ -268,20 +304,22 @@ Hello，豆粉们大家好，我是lip师兄。
 
 我们普通投资者，如果能做到以下几点，一样有机会击败专业投资者：
 
-
-
-
+**1. 控制好“安全边际”，减少亏损的可能性。**
+**2. 守住自己的“能力圈”，不懂的题材和行业，不参与。**
+**3. 调整好心态，赚了钱别太高兴，亏了钱也别太难过。**
 
 最后，最重要的：
-
+**不要借钱投资。**
 
 还在怀疑自己的投资能力差，跑赢不了市场吗？
 文章开头的这些豆粉，就是大家最好的栗子和榜样。
 
 
-
-
+**你的收益率如何呢？**
+**拖后腿了吗？**
 
 
 愿爱学习的你们被世界温柔以待~
 
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZiaYegW4tHz3hWfhG14uajLgvR61iakBXNBcEef3bAB4BW3WrfE0LnpoA/640?wx_fmt=png)
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZiaYegW4tHz3hWfhG14uajLgvR61iakBXNBcEef3bAB4BW3WrfE0LnpoA/640?wx_fmt=png)
