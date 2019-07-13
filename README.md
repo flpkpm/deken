@@ -1,4 +1,7 @@
 
+
+
+
 Hello，豆粉们大家好，我是lip师兄。
 
 今天我们说一个屌丝小散户，挑战金融大鳄的故事。
@@ -12,6 +15,7 @@ Hello，豆粉们大家好，我是lip师兄。
 这简直就是蚂蚁与大象之间的战斗。
 无论是时间、资金、知识等，专业投资者们都有明显的优势。
 
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZqDibey1M3yVlib4X0UPe6EAAb21Z1dbKCasMiaAjDeLIEmBLHIeuKCbIQ/640?wx_fmt=png)
 
 所以，散户铁柱、宝妈小花，是不可能比基金经理们收益高的……
 吗？
@@ -22,6 +26,7 @@ Hello，豆粉们大家好，我是lip师兄。
 我们先来看看，股票市场发生了什么。
 上半年，中国股市涨得还不错。沪深300指数涨了26%。
 
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZkd3A5eFHiatFwP6hcYNrqhfhxnLUyLib6HDkJksFE3f6wv5ptAxt0ia9g/640?wx_fmt=png)
 
 
 好的，市场平均水平是26%。
@@ -44,8 +49,8 @@ Hello，豆粉们大家好，我是lip师兄。
 
 这不由让我想起了“相貌平平”古天乐：
 
-( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZzETLqXrOM4dLfqGjehGfZggqS2abMuRjXv77ia9fbsu0n9JqKvsBk6A/640?wx_fmt=png)
 
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZzETLqXrOM4dLfqGjehGfZggqS2abMuRjXv77ia9fbsu0n9JqKvsBk6A/640?wx_fmt=png)
 
 
 
@@ -63,6 +68,7 @@ Hello，豆粉们大家好，我是lip师兄。
 
 部分消息如下。
 
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZcSAPGHlQJ9tEv11LN073464xYUzqYEoxmDcXEM4nXZFaW3neWy5WxA/640?wx_fmt=png)
 哟呵，豆粉小崽子们不错呀。
 皮妈表示非常欣慰。
 
@@ -98,6 +104,7 @@ Hello，豆粉们大家好，我是lip师兄。
 当然，也有一些豆粉，收益稍差一些。
 比如这位：
 
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZia8fDI3ccedTKBlZicIj5wRUyoiaWcmY3TDE0gk3KnBg5k3IvQ64ZrQtA/640?wx_fmt=png)
 
 
 篇幅原因，我们不放所有截图了。
@@ -119,11 +126,13 @@ Hello，豆粉们大家好，我是lip师兄。
 
 首先这位：
 
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZZ9hwSEhjJQO2ibHYbFiaWqzcaCLpyBahkV6hj7J4mgOJH7PgdqEv4sbw/640?wx_fmt=png)
 
 某基金经理简历，复D大学企业管理专业硕士，掌管47亿资产。
 
 还有这位：
 
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZcDWBH7QcAVNdCwtGo0N3UmVFnRo2YAlVwNo2dJanicT6V16icugBeQlA/640?wx_fmt=png)
 
 这位更牛，北京大学****学院会计学硕士，资产规模接近300亿！
 
@@ -134,7 +143,6 @@ Hello，豆粉们大家好，我是lip师兄。
 
 
 
-( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZAuFYt75H1mWaicpYPpP5dhOia7pAh4no3efEiasmyESUHKacTm0ytMUqQ/640?wx_fmt=png)
 ( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZAuFYt75H1mWaicpYPpP5dhOia7pAh4no3efEiasmyESUHKacTm0ytMUqQ/640?wx_fmt=png)
 
 
@@ -172,6 +180,7 @@ Hello，豆粉们大家好，我是lip师兄。
 铁柱表示：
 要瓜没有，要命一条！
 
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZaPHkuvEKHXCYxqNNhqgIXiaNAIp5qCNHLOqO66HMVZkudqTcb9GoURg/640?wx_fmt=png)
 
 这就是现实世界中，基金经理遇到的现实问题：
 
@@ -181,6 +190,7 @@ Hello，豆粉们大家好，我是lip师兄。
 
 这会导致，他们明明发现了很好的买入和卖出时机，却没有办法及时操作，从而损失利润。
 
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZhuqtDhiaYr4GSEu94mVfj9lNv6Sl4Kp53z4z0fkIJwibab9598CviaBgw/640?wx_fmt=png)
 
 
 
@@ -196,6 +206,7 @@ Hello，豆粉们大家好，我是lip师兄。
 这种压力，无形之中会干扰他们的决策。
 为了保证自己“立于不败之地”，他们可能会保守的选择更稳定的股票，从而放弃打败市场的机会。
 
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZclgzqdWRWkiaGqsxOZGMeTiaufpcJqNYjvibxAqFfTQw0eliacf2Y8bDqQ/640?wx_fmt=png)
 
 
 
@@ -234,10 +245,9 @@ Hello，豆粉们大家好，我是lip师兄。
 
 
 
-( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ3FxuPEd9LBmn83PxGM7sMwp6YUr2g2uBiavRLB5BrSyU3ofMuuic7ialA/640?wx_fmt=png)
-( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ3FxuPEd9LBmn83PxGM7sMwp6YUr2g2uBiavRLB5BrSyU3ofMuuic7ialA/640?wx_fmt=png)
 
 
+( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZ3FxuPEd9LBmn83PxGM7sMwp6YUr2g2uBiavRLB5BrSyU3ofMuuic7ialA/640?wx_fmt=png)
 
 
 
@@ -274,6 +284,4 @@ Hello，豆粉们大家好，我是lip师兄。
 
 
 愿爱学习的你们被世界温柔以待~
-
-( ![](https://mmbiz.qpic.cn/mmbiz_png/gibC3OFwKUBWsB5Mib5qBMWSTUdxBLTFWZiaYegW4tHz3hWfhG14uajLgvR61iakBXNBcEef3bAB4BW3WrfE0LnpoA/640?wx_fmt=png)
 
